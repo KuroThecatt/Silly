@@ -9,3 +9,4 @@
 . 
 <img width="1540" height="220" alt="Image" src="https://github.com/user-attachments/assets/e54ef865-607f-493f-b576-8c7c5db11ebb" /><img width="40" height="90" alt="Image" src="https://github.com/user-attachments/assets/c285667c-358a-403b-8ffd-08dd313df041" /> huge pink and snow leopard enthusiast . ,
 furry dc server , , ; https://discord.gg/xgaYEMuFv
+<img width="210" height="260" alt="Image" src="https://github.com/user-attachments/assets/576ebb6d-63ba-4150-9479-f6093917786c" />
