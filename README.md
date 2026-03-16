@@ -7,6 +7,6 @@
 . 
 . 
 . 
-<img width="1540" height="220" alt="Image" src="https://github.com/user-attachments/assets/e54ef865-607f-493f-b576-8c7c5db11ebb" /><img width="40" height="90" alt="Image" src="https://github.com/user-attachments/assets/c285667c-358a-403b-8ffd-08dd313df041" /> huge pink and snow leopard enthusiast . ,
-furry dc server , , ; https://discord.gg/xgaYEMuFv
+<img width="1540" height="220" alt="Image" src="https://github.com/user-attachments/assets/e54ef865-607f-493f-b576-8c7c5db11ebb" /><img width="40" height="90" alt="Image" src="https://github.com/user-attachments/assets/c285667c-358a-403b-8ffd-08dd313df041" /> һᥙgᥱ ⍴іᥒk ᥒძ sᥒ᥆ᥕ ᥣᥱ᥆⍴ᥲrძ ᥱᥒ𝗍һᥙsіᥲs𝗍 . ,
+𝖿ᥙrrᥡ ძᥴ sᥱr᥎ᥱr , , ; https://discord.gg/xgaYEMuFv
 ⋆. 𐙚 ˚ <img width="210" height="260" alt="Image" src="https://github.com/user-attachments/assets/576ebb6d-63ba-4150-9479-f6093917786c" /> <img width="90" height="150" alt="Image" src="https://github.com/user-attachments/assets/c4b16015-be0e-4b4a-b4d1-0df56afc5b1e" /> ⋆˚𝜗𝜚˚⋆
