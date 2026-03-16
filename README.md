@@ -1,4 +1,5 @@
 # :3
+<img width="2048" height="664" alt="Image" src="https://github.com/user-attachments/assets/9958d89f-957f-43f4-af9f-cf34a5eda613" />
 𐙚 ' ' ძᥱᥲr іs ⍴᥆ᥣᥡᥲm᥆rᥡ ᥆k ? . ' ' ♡
 <img width="1200" height="512" alt="Image" src="https://github.com/user-attachments/assets/e9ece94a-3601-425d-ac39-18b35b46767e" />
 ˚₊· ͟͟͞͞➳❥ һᥱᥡᥲ , , і g᥆ ᑲᥡ kᥙr᥆ ᥆r ᥴᥲ𝗍 , ᥱі𝗍һᥱr іs 𝖿іᥒᥱ .
